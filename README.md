@@ -1,0 +1,1 @@
+# ternaklogi.id
